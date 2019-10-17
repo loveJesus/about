@@ -1,4 +1,5 @@
-#The Gospel
+# The Gospel
+
 Jesus Christ is the Son of God, born of a virgin. He lived a sinless life while on earth, went around preaching
 to repent and believe in the good news and turn to God by following Him, and making many miracles to back up His claim.
 Jesus was crucified for our transgressions, as God is perfect and so Holy and Just that we have all fallen short 
